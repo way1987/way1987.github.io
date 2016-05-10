@@ -1,2 +1,2 @@
 # way1987.github.io
-private page
+I'm WAY! On my Way!
